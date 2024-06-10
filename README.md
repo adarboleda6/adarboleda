@@ -1,2 +1,6 @@
 # adarboleda
 Trabajo en clase
+Frio y seco, pero eso es mi color favorito.
+Las dos lunas pueden ser un problema para el hombre lobo.
+Pero la momia agradecerÃ¡ la falta de humedad.
+Soy muy fan de los gatos. 
